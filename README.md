@@ -6,7 +6,7 @@
 <img width="100%" src="https://file.garden/Z4_uMXj5okOfzfmz/madebysoreHi.gif">
 <div align="center"><img width="90%" src="https://file.garden/Z4_uMXj5okOfzfmz/Tumblr_l_23651581281659.jpg">
 <b>sore</b> / reau 📹 (S)Her ♀ <ins>19</ins>yo 🇮🇹 + eng ok~
-mood swings. diadop+gyjo+seccolata <b>fan</b></b>.
-INT freely. I don't int first most of the time. BMF if you like jjba please brou..Beware of frequent changes in my github~~baai</div>
+mood swings. diadop+gyjo+seccolata <b>fan.</b><br>
+INT freely. I don't int first most of the time.</div>
 ㅤㅤ‹💌.<img src="https://views-counter.vercel.app/badge?pageId=cioccosecco&leftColor=000000&rightColor=ffffff&type=total&label=patients&style=none" alt="Views Counter">
 </details>
