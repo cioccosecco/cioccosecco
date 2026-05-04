@@ -5,6 +5,6 @@
 sore/reau 📹. <b>19</b> years old. (S)Her <b>♀</b> Italian. read rentry(s). 🦴 <ins>gyjo, diadop, seccolata fan.</ins><br>  
 </p>
  
- ㅤㅤ‹📹 .<img src="https://views-counter.vercel.app/badge?pageId=cioccosecco&leftColor=5f7d47&rightColor=663e25&type=total&label=patients&style=lower" alt="Views Counter"> <b> ～ ART [CR](https://www.tumblr.com/that-mono-over-there/775494001872781312/valentine-s-day-smooch-kinda-based-on-this?source=share)</b>
+ ㅤㅤ‹💉 .<img src="https://views-counter.vercel.app/badge?pageId=cioccosecco&leftColor=5f7d47&rightColor=663e25&type=total&label=patients&style=lower" alt="Views Counter"> <b> ～ ART [CR](https://www.tumblr.com/that-mono-over-there/775494001872781312/valentine-s-day-smooch-kinda-based-on-this?source=share)</b>
 <br>
 <sub>looks cuter on mobile aww:o(</sub>
